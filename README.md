@@ -54,7 +54,7 @@ I always strive to be guided by values such as integrity, honesty, passion, dedi
 
 ## 📫 Contact Me
 
-- [LinkedIn](https://www.linkedin.com/in/mauricioemiliomonroy)
+- [LinkedIn](www.linkedin.com/in/mauricio-e-monroy-glz-a32739232)
 
 ---
 
